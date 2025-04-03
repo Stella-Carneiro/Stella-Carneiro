@@ -1,4 +1,4 @@
-## Bem-vindo(a) ao perfil do Stella-Carneiro
+## Bem-vindo(a) ao perfil da Stella-Carneiro
  😁
 
  <div>
